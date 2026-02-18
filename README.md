@@ -1,0 +1,2 @@
+# CineMind
+İzle, Keşfet
